@@ -9,3 +9,5 @@ I love 🍕, 🎮 and 💻
 Oh, jag gillar de filmerna! Länge sedan jag såg dem. :)
 Cool gif, också!
 //Magnus
+
+Vilken trevlig repository <3 // Simon 
